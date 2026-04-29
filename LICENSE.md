@@ -1,4 +1,4 @@
-
+shrink for brainrots Scripts smart is the best shrink for brainrots Script, featuring auto-sell and speed. Safe and powerful for all your needs.
 
 
 
